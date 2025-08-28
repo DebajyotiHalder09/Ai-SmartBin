@@ -1,0 +1,1 @@
+#Ai bin banamu, ki korbi ko
